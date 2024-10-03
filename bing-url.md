@@ -1,3 +1,5 @@
+20241003 | [Taj Mahal in Agra, Uttar Pradesh, India (© Tanarch/Getty Images)](https://cn.bing.com/th?id=OHR.TajMahalReflection_EN-US5053333041_UHD.jpg)
+
 20241001 | [Last light on Half Dome, Yosemite National Park, California (© Adam Burton/Alamy)](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-US4890007214_UHD.jpg)
 
 20240930 | [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/Danita Delimont)](https://cn.bing.com/th?id=OHR.WalrusNorway_EN-US4658961878_UHD.jpg)
