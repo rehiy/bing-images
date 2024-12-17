@@ -1,3 +1,5 @@
+20241217 | [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-US8636083241_UHD.jpg)
+
 20241215 | [Lake Misurina, Dolomites, Italy (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.MisurinaLake_EN-US7921587884_UHD.jpg)
 
 20241214 | [Northern hawk-owl, Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-US7592435350_UHD.jpg)
