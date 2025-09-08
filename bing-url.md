@@ -1,3 +1,5 @@
+20250908 | [Library@orchard, Singapore (© Darwin Fan/Getty Images)](https://cn.bing.com/th?id=OHR.OrchardLibrary_EN-US8095609746_UHD.jpg)
+
 20250907 | [Gdańsk on the banks of the Motława, Poland (© Oscar Dominguez/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.BlueGdansk_EN-US8032283831_UHD.jpg)
 
 20250905 | [Pacific Park at Santa Monica State Beach, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://cn.bing.com/th?id=OHR.SunsetPier_EN-US7261804528_UHD.jpg)
