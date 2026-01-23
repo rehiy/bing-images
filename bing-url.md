@@ -1,3 +1,5 @@
+20260123 | [Sheep grazing in snow, Iceland (© Christophe Lehenaff/Getty Images)](https://cn.bing.com/th?id=OHR.IcelandSheep_EN-US8273507799_UHD.jpg)
+
 20260121 | [Eurasian red squirrel (© Galina Jacyna/Getty Images)](https://cn.bing.com/th?id=OHR.BerrySquirrel_EN-US0798771452_UHD.jpg)
 
 20260120 | [Gentoo penguin, Petermann Island, Antarctica (© Paul Souders/DanitaDelimont.com/Alamy)](https://cn.bing.com/th?id=OHR.IciclePenguin_EN-US0727591285_UHD.jpg)
