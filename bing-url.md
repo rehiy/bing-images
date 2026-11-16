@@ -1,3 +1,5 @@
+20261116 | [Gila Cliff Dwellings National Monument, New Mexico (© Chiara Salvadori/Getty Images)](https://cn.bing.com/th?id=OHR.GilaCliff_EN-US2139490645_UHD.jpg)
+
 20261115 | [Frozen azalea with red leaves (© avoferten/Shutterstock)](https://cn.bing.com/th?id=OHR.FirstFrost_EN-US8881008245_UHD.jpg)
 
 20261114 | [Victoria Harbour, Hong Kong, China (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.BlueHK_ROW5600938316_UHD.jpg)
